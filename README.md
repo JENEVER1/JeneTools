@@ -1,2 +1,6 @@
 # JeneTools
 Versi 0.0.1
+
+TIM: D4RKS1D3
+
+PEMIMPIN: JENEVER.CX22
